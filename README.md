@@ -1,1 +1,1 @@
-Welcome to IU Cyber Security Club
+IU Cyber Security Club
